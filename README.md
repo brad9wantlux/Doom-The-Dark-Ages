@@ -236,4 +236,4 @@ DOOM: The Dark Ages is available as a full free version, allowing you to enjoy a
 Don't miss out on the action! Download DOOM: The Dark Ages today and immerse yourself in an unforgettable gaming experience.
 
 ---
-**Last updated:** 2026-09-19 07:52:31 UTC
+**Last updated:** 2026-09-19 12:14:34 UTC
